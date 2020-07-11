@@ -1,0 +1,2 @@
+# review
+If you're looking for a review of The Asigo System by Chris Munch, you've come to the right place. For those who worked with me in the background before the official launch of this website, I know I would never do a review and recommend a product that doesn't work.  From everything I've seen, I think the Asigo system will change the way you work and earn money online. https://powdersvillepost.com/asigosystem-review-chris-munch/
